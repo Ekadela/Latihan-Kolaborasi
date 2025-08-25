@@ -10,3 +10,5 @@ Menurutku aku lebih susah kerja dalam kelompok dari pada kerja secara individu, 
 
 ### Motivation
 taesan, yojee, sahii, ocii, eskup ehehe
+
+Tasan itu aura cowo badboy tapi kek pen gw pacarin pliss
