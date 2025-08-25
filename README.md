@@ -4,3 +4,6 @@ Latihan kolaborasi
 ## Tips Berkolaborasi
 - Mulai dari yang sederhana, gausah maruk ambil yang kompleks
 - Pelajari ekosistem kamu bekerja
+
+### Pandanganku tentang kolaborasi
+Menurutku aku lebih susah kerja dalam kelompok dari pada kerja secara individu, memang membangun kolaborasi pasti memiliki beberapa tantangan tersendiri. Mulai dari perbedaan pendapat yang bisa berakhir ricuh jika kita tidak mengetahui bagaimana cara mengatasinya. Selain itu jika ada anggota yang tidak bertanggung jawab dengan tugasnya pasti akan menjadi beban besar bagu abggita lainnya.
