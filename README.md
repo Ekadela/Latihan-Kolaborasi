@@ -12,3 +12,4 @@ Menurutku aku lebih susah kerja dalam kelompok dari pada kerja secara individu, 
 taesan, yojee, sahii, ocii, eskup ehehe
 
 Tasan itu aura cowo badboy tapi kek pen gw pacarin pliss
+Kalau yoje itu kalemm bettt beda bet sm si han taesan, dia se line sm gw btw ihuy
